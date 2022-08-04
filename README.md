@@ -2,7 +2,7 @@
 - 👀 I’m interested in give my hand for Humanity
 - 🌱 I’m currently learning how to be a better persone
 - 💞️ I’m looking to collaborate on diferents projects to learn always
-- 📫 How to reach me, you can do trough twiter or... email or... 
+- 📫 How to reach me, you can do trough twiter or... email: daniel.sigonta@gmail.com or... yeah whatever 
 
 <!---
 DanielCipriani/DanielCipriani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
